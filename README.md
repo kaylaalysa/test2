@@ -14,3 +14,6 @@ https://github.com/user-attachments/assets/4a7862be-9865-448a-943f-6ec0cf592cb6
 <img width="473" alt="Screen Shot 2024-12-16 at 21 54 30" src="https://github.com/user-attachments/assets/98ba33e6-7781-4d89-aacb-23fe411793c0" />
 
 
+
+
+![FotoPortfolio](https://github.com/user-attachments/assets/538ee5dd-7265-48b9-bd1d-e59f1cf6b960)
